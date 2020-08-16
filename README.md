@@ -1,1 +1,1 @@
-# jamie-graham-photography
+### Landing page for Jamie Graham Photography
